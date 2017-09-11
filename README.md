@@ -3,6 +3,6 @@
 
 ![Rabiul](https://media.licdn.com/mpr/mpr/shrinknp_200_200/AAEAAQAAAAAAAANxAAAAJDVkZDQ1Y2FhLTAxMjgtNDczNC05Yzc3LWU3YWM1MDcyOTcxNg.jpg)
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nullam quis nisl eget nisi pretium dapibus ut ut turpis. Curabitur non lorem lectus. Nunc euismod mauris nisi, a viverra ante rhoncus ac. Suspendisse potenti. Pellentesque in malesuada libero. Proin mattis sapien eu lobortis dapibus. Praesent commodo in ante quis hendrerit.
+I am in Windsor, Canada since 2011. This is new culture and I am trying to cope with it. My family also migrated with me. They are also finding the new place challenging. I am learning and hope to do well here.
 
 
